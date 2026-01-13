@@ -12,5 +12,7 @@
 
 ✅ 安全保障
 支持改密、改手机、改邮箱，自主掌控账号，无后顾之忧
-![微信图片_20260112234519_158_282](https://github.com/user-attachments/assets/46253f1e-291e-48f7-8dd3-e5eea10b8348)
-![微信图片_20260112234551_159_282](https://github.com/user-attachments/assets/9ecec612-bcb4-472f-9310-b0c0850171ee)
++wechat：522897261
+
+![微信图片_20260112234519_158_282](https://github.com/user-attachments/assets/25c10440-0ceb-4ae0-b81d-ea4a08f62259)
+
